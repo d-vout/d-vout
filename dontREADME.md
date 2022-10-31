@@ -1,0 +1,5 @@
+- 👋 Hi, I’m [@d-vout](https://github.com/d-vout)
+- 👀 I’m interested in ripping your code 
+- 🌱 I’m currently learning how to rip your code even better
+- 💞️ I’m looking to collaborate on nothing- thanks, skid!
+- 📫 0@gho.st
